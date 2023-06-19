@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @shfjuahfdjhwdaejfdsh
+- 👋 Hi, I’m Madness 
 - 👀 I’m interested in moderation
 - 🌱 I’m currently learning discord
 - 💞️ I’m looking to collaborate on discord

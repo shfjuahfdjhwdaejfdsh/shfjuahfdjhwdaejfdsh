@@ -1,10 +1,10 @@
-- 👋 Hi, I’m @Nothingplayz_roblox / DominusIntoGames 
-- 👀 I’m interested in moderation and social media's
-- 🌱 I’m currently learning discord
+- 🎆Hello Ayah
+- ✨🎉 I’m interested in moderation and social media's
+- 🎉🎉🎉 I’m currently learning discord In 2023
 - 🔰 I’m looking to Have Security on discord \ discord Bots
-- 📫 How to reach me arkana.karbhawono@gmail.com \ karbhawono@gmail.com
+- Mail :📫 arkana.karbhawono@gmail.com \ karbhawono@gmail.com
 
 <!---
-Nothingplayz_roblox is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Nothingplayz_roblox is a ✨ special ✨ repository because its Discord appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
